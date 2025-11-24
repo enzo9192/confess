@@ -23,7 +23,7 @@ Ur care for me,ur love for me and ur  possessive nature for me, makes me feel ur
 Theory says that people who went from ur life were not urs, people coming to ur life through unexpected ways are the real ones and for me u r the one.
 For me finding love was very harder but finding love and best friend in one was my luck.My only demand for u is to stay with me because I can't lose u..
 My plan was,i wanted it to be confessed after 10th but I can't hide it anymore.
-For me ur laugh is the sweetest melody I've ever heard,and ur love is the greatest gift I could ever receive.I want to spend forever making u smile, forever holding ur hand, forever being the reason u believe in love and also I wanna be ur sorry saying patnar..
+For me ur laugh is the sweetest melody I've ever heard,and ur love is the greatest gift I could ever receive.I want to spend forever making u smile, forever holding ur hand, forever being the reason u believe in love and also I wanna be ur sorry saying partnar..
 My intention to confess this was not because I want u,my intention was to tell u and let uk what I am feeling!!
 In some yrs would u like to change ur pincode into mine's.
 Will u be mine forever??
